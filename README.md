@@ -7,6 +7,7 @@
 - 🌱 I’m currently learning **cyber security**
 
 - 💬 Ask me about **Tech & Science**
+- 📰 Subscribe to my newsletter: https://www.linkedin.com/newsletters/7303346529786834945/
 
 - 📫 How to reach me **vivekrgupta@gmail.com**
 
