@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vivekrgupta@gmail.com**
 
-- ⚡ Fun fact **I think I am funny guys 😍!**
+- ⚡**My Portfolio Link** - https://ovikportfolio.netlify.app/
 
 <h3 align="left"> 📫 Connect with me:</h3>
 <p align="left">
